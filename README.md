@@ -1,4 +1,5 @@
-## Hi there 👋
+## haiiii profile not done yet 🥺 pls come back later
+
 
 <!--
 **vrezensky/vrezensky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
