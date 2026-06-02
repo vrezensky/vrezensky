@@ -1,4 +1,6 @@
-## haiiii profile not done yet 🥺 pls come back later
+## "𝘛𝘩𝘢𝘯𝘬𝘴 𝘵𝘰 𝘺𝘰𝘶, 𝘐 𝘢𝘮 𝘴𝘢𝘥𝘥𝘭𝘦𝘥 𝘸𝘪𝘵𝘩 𝘶𝘯𝘯𝘦𝘤𝘦𝘴𝘴𝘢𝘳𝘺... 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴.”
+
+- haiiii profile not done yet 🥺 pls come back later
 
 
 <!--
