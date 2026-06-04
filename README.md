@@ -1,8 +1,9 @@
+<img width="498" height="498" alt="download" src="https://github.com/user-attachments/assets/069beab5-b8d9-4ad1-b05d-723c0db1bf7a" />
 ## "𝘛𝘩𝘢𝘯𝘬𝘴 𝘵𝘰 𝘺𝘰𝘶, 𝘐 𝘢𝘮 𝘴𝘢𝘥𝘥𝘭𝘦𝘥 𝘸𝘪𝘵𝘩 𝘶𝘯𝘯𝘦𝘤𝘦𝘴𝘴𝘢𝘳𝘺... 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴.”
 
 - haiiii profile not done yet 🥺 pls come back later
 
-
+<img width="498" height="498" alt="download" src="https://github.com/user-attachments/assets/069beab5-b8d9-4ad1-b05d-723c0db1bf7a" />
 <!--
 **vrezensky/vrezensky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
