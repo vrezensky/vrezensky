@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=vrezensky&label=DNFs)
+
 haiiii profile not done yet 🥺 pls come back later
 
 im just gonna put.. narajenson here
