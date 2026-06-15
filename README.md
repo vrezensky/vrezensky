@@ -11,5 +11,5 @@ im just gonna put.. narajenson here
 
  <sup>*(img creds to yeji/neptune)*<sup>
 
- [ata](https://vrezensky.atabook.org) ; [guns.lol](https://guns.lol/vrezensky) 
+ [ata](https://vrezensky.atabook.org) ; [guns.lol](https://guns.lol/vrezensky) ; [rentry (by cyber)](https://rentry.co/vrezensky)
 </div>
