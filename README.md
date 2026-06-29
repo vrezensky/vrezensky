@@ -2,7 +2,7 @@
 
  ![](https://komarev.com/ghpvc/?username=vrezensky&label=orange%20juice)
 
-haiiii profile not done yet 🥺 pls come back later
+*"If I can't shoot, then I won't! I still got other ways of fucking you up!"*
 
 im just gonna put.. narajenson here
 
