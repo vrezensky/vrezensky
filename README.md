@@ -10,5 +10,5 @@
  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Xanh+Mono&size=18&pause=1000&color=FFFFFF&center=true&width=435&lines=%09%22I'll+kill+the+dreams+I+could+never+fulfill.%22)](https://git.io/typing-svg)
 
- [ata](https://vrezensky.atabook.org) ; [guns.lol](https://guns.lol/vrezensky) ; [rentry (by cyber)](https://rentry.co/vrezensky)
+ [ata](https://vrezensky.atabook.org) ; [guns.lol](https://guns.lol/vrezensky) ; [rentry](https://rentry.co/vrezensky) [(by cyber)](https://github.com/cybermiyano)
 </div>
