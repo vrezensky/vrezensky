@@ -1,5 +1,7 @@
 <div align="center">
+Semi-Inactive! Will be back in a few months
 
+ 
  ![](https://komarev.com/ghpvc/?username=vrezensky&label=orange%20juice&color=orange)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Xanh+Mono&size=18&pause=1000&color=FFFFFF&center=true&width=435&lines=%22After+we+hold+hands%2C+and+love+one+another..%22)](https://git.io/typing-svg)
