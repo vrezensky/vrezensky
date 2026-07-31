@@ -1,7 +1,7 @@
 <div align="center">
 
  
-$$\Huge\text{Semi-Inactive!  Will be back in a few months}$$
+Semi-Inactive!  Will be back in a few months
  
  ![](https://komarev.com/ghpvc/?username=vrezensky&label=orange%20juice&color=orange)
 
