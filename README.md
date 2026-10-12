@@ -2,7 +2,7 @@
 
 [![IMG-20261012-185245.png](https://i.postimg.cc/76V3jxp9/IMG-20261012-185245.png)](https://postimg.cc/2b1LZfjL)
 
- ![](https://komarev.com/ghpvc/?username=vrezensky&label=orange%20juice&color=orange)
+ ![](https://komarev.com/ghpvc/?username=vrezensky&label=orange%20juice&color=#FF8773)
  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Reenie+Beanie&size=18&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=After+we+hold+hands%2C+and+love+one+another..;I'll+kill+the+dreams+i+could+never+fullfill.)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Yuji+Syuku&size=9&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=「手を取り合い%2C愛し合えたら..」;「ついに叶わなかった夢を殺す.」)](https://git.io/typing-svg)
